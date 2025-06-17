@@ -1,1 +1,1 @@
-# AEDs-te-rica
+# AEDs-teorica
